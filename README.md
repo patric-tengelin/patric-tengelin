@@ -19,4 +19,4 @@ Over the past decade, I have lived and worked across more than fifteen countries
 - https://patrictengelin.carrd.co/
 - https://www.crunchbase.com/person/patric-tengelin
 - https://dev.to/patric-tengelin
-- https://patrictengelin.blogspot.com/
+- https://patrictengelin.com/

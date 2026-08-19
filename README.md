@@ -16,7 +16,6 @@ Over the past decade, I have lived and worked across more than fifteen countries
 
 - https://patrictengelin.com
 - https://nomadaffairs.com
-- https://expatgeorgia.com
 - https://barbadosnomad.com
 - https://about.me/patrictengelin
 - https://linkedin.com/in/patric-tengelin
